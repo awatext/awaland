@@ -1,7 +1,3 @@
----
-description: 'B: 不写小说wwwwwwwwwwwwwwwwwwwwwwwwww佬 好难用'
----
-
 # 鲸歌
 
 DPG站在船头，望着hack.chat平静的终端沉思着。他很少沉思，总是不用思考就知道怎样做，并不用思考就去做，现在看来事情确实变难了。
