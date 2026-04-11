@@ -183,13 +183,17 @@ Allen Alex Real\_Nickname LINGJI THEWESTSHELL cakechan zzChumo ee 13 detele Quee
 
 ### 论外
 
-最后是几位那之后常驻的，稍微加一下。还有些外国人就算了。
+最后是几位那之后常驻的，稍微加一下。
 
-|   昵称  |       注      |
-| :---: | :----------: |
-| canyu | 之前好像也来过，竟然没记 |
-|  dodo |      渡渡公     |
-|  sun  |    另一个sun    |
-|  Qiu  |    ~~球~~秋    |
-|  hugh |       修      |
-|   t   |              |
+|     昵称     |       注      |
+| :--------: | :----------: |
+|    canyu   | 之前好像也来过，竟然没记 |
+|    dodo    |      渡渡公     |
+|     sun    |      kc      |
+|     Qiu    |    ~~球~~秋    |
+|    hugh    |       修      |
+|     dqi    |      猫猫      |
+|    2923    |      ^^      |
+|   tomato   |      🍅      |
+| Kodachrome |   EEEEEEEEE  |
+
