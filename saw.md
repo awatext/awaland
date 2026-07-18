@@ -183,7 +183,7 @@ Allen Alex Real\_Nickname LINGJI THEWESTSHELL cakechan zzChumo ee 13 detele Quee
 
 ### 论外
 
-最后是几位那之后常驻的，稍微加一下。
+最后是几位那之后（25年后）常驻的，稍微加一下。
 
 |     昵称     |       注      |
 | :--------: | :----------: |
@@ -196,4 +196,5 @@ Allen Alex Real\_Nickname LINGJI THEWESTSHELL cakechan zzChumo ee 13 detele Quee
 |    2923    |      ^^      |
 |   tomato   |      🍅      |
 | Kodachrome |   EEEEEEEEE  |
-
+|   alastor  |     日本华人     |
+|   kirito   |   桐人，还是歪果仁   |
